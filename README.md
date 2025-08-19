@@ -23,7 +23,7 @@
 
   📫 Connect with Me
 - 📧 Email:basirhannaneh@gmail.com
-- [__codecrafter__](https://instagram.com/codecrafter)
+- [__codecrafter__](https://instagram.com/__codecrafter__)
 
 ---
 
